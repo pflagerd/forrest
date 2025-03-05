@@ -12,4 +12,6 @@ Current Routine:
 
 5. Practice some OM Japa in the chakras to clean the way
 
-6. Let go and enjoy the good effects, which is the Paravastha state
+6. Practice the First Kriya
+
+7. Let go and enjoy the good effects, which is the Paravastha state
